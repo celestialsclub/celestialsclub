@@ -1,0 +1,3 @@
+- 👋 Hi, we are IT students making powerful impacts.
+- 👀 we are interested in helping other human being.
+- 📫 send us a hi at celestialsclub@gmail.com
